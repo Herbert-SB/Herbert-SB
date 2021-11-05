@@ -1,7 +1,7 @@
 - 👋 Olá, sou @Herbert-SB
 - 👀 Estou interessado em aprender.
-- 🌱 Atualmente estou aprendendo (Python,Html Css, Pentest)
-- 💞️ Estou procurando colaborar em
+- 🌱 Atualmente estou aprendendo (Python,Html Css, Pentest, Persuasão e Técnicas de Manipulação)
+- 💞️ Estou procurando colaborar em criação de projetos.
 - 📫 Como chegar até mim. 
    Zap:(32)98862-7949, Email: silvaherbert514@gmail.com, Instagram: @herbertbarbosa2
 
